@@ -1,2 +1,0 @@
-# Komp-Grafika
-labu 
